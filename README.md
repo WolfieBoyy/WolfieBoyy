@@ -17,7 +17,7 @@
 
 - 💬 Ask me about **Javascript, and python**
 
-- 📫 How to reach me **https://discord.gg/multiplrs, WolfieBoy#5868 or**
+- 📫 How to reach me **https://discord.gg/multiplrs, WolfieBoy#5868.**
 
 - ⚡ Fun fact **A turtles penis can go up to more than 4 inches long.**
 
